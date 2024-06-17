@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **APIs and premiums**
 
-- 👨‍💻 All of my projects are available at [https://iphone-x.onrender.com/](https://iphone-x.onrender.com/)
+- 👨‍💻 One of my projects are  [https://iphone-x.onrender.com/](https://iphone-x.onrender.com/)
 
 - 💬 Ask me about **Anything you wish is not offensive**
 
